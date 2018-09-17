@@ -11,4 +11,8 @@ your dad comes and slaps the cops who ignore him and keep slapping your mother
 ...
 time pauses
 ur mother slaps everyone on earth
+they all said oof
+as everyone in the world died 
+everyone except for the mom
+and then a sad violin played
 the end
